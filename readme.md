@@ -1,0 +1,1 @@
+Milk Shake is a sweet drink made by blending milk, chocoklate , and also in different types of fruites style such as mango shake, banana skake , caramel shake etc .
